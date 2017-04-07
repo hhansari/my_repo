@@ -1,0 +1,1 @@
+avalin taghir dar main1
