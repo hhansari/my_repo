@@ -1,1 +1,1 @@
-avalin taghir dar main1
+2 omin taghir dar main1
